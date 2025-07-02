@@ -30,6 +30,11 @@ I’m passionate about turning complex financial data into actionable business i
 
 ---
 
+📚 Education
+- MBA in Finance – IGNOU
+- M.Com – Rajasthan University
+---
+
 📫 Let's Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/mohit-sharma-4a9688289?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
