@@ -7,7 +7,7 @@
 
 🧾 About Me
 
-I’m a finance professional with 9+ years of experience** in Finance and Accounts, currently working at Accenture, Jaipur.
+I’m a finance professional with 9+ years of experience in Finance and Accounts, currently working at Accenture, Jaipur.
   
 With a strong foundation in financial operations, reporting, and analysis, I’ve developed a deep understanding of how data drives decision-making in the business world.
 
