@@ -31,8 +31,8 @@ I’m passionate about turning complex financial data into actionable business i
 ---
 
 📚 Education
-- MBA in Finance – IGNOU
-- M.Com – Rajasthan University
+- MBA (Finance)
+- M.Com (Business Administration)
 ---
 
 📫 Let's Connect
